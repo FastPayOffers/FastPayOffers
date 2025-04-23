@@ -5,4 +5,4 @@
 
 📌 **Join 50,000+ users earning extra cash!**  
 
-👉 [Visit Our Latest Offer](https://FastPayOffers.github.io)  
+👉 [Visit Our Latest Offer](https://fastpayoffers.github.io/cash-rewards-app/)  
